@@ -7,5 +7,5 @@ audio.addEventListener("click", function audio(){
 });
 
 gambar.addEventListener("click", function gambar(){
-    alert("ini gambar Silaturahmi");
+    alert("ini gambaran Ramadhan");
 });
