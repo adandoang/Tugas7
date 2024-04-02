@@ -1,0 +1,6 @@
+![image](https://github.com/adandoang/Tugas7_20220140174_Akhdan-Jauzaa-Iffat/assets/127088699/7627533a-ea0c-4317-a261-7296261ecf45)
+![image](https://github.com/adandoang/Tugas7_20220140174_Akhdan-Jauzaa-Iffat/assets/127088699/80a5a25d-1149-4f87-a10c-26d33b1cb925)
+![image](https://github.com/adandoang/Tugas7_20220140174_Akhdan-Jauzaa-Iffat/assets/127088699/2152b1d5-99b8-49bf-89ad-16224f8acb71)
+![image](https://github.com/adandoang/Tugas7_20220140174_Akhdan-Jauzaa-Iffat/assets/127088699/9d15ba31-cdc4-408c-90e8-0795b5643a32)
+![image](https://github.com/adandoang/Tugas7_20220140174_Akhdan-Jauzaa-Iffat/assets/127088699/bc975e0a-e955-4294-b8d9-c6ff1dc6f314)
+![image](https://github.com/adandoang/Tugas7_20220140174_Akhdan-Jauzaa-Iffat/assets/127088699/04d42e57-f7d8-4aee-899a-a5402896637d)
